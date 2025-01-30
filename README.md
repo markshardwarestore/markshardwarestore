@@ -3,8 +3,9 @@
 *Don't be scared to whisp or int if you have any fandom in common w me if I'm by myself, please!! :]*
 
 Whispers are more recommended since I'm offtab most of the time tho,, sorry!
+I will probably disconnect more often though!!!
 
-`STILL a wip uh ohh`
+`I love that stupid mannequin /aff`
 
 
 ![Alt Tag](https://64.media.tumblr.com/e9b960b2067cebafe2b342aef2015285/1fbc6f1f3e7f80fc-e4/s100x200/7423bedba844fdd1014e68e171b1702f89931c1d.gifv)
