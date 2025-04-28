@@ -2,6 +2,8 @@
 
 *Don't be scared to whisp or int if you have any fandom in common w me if I'm by myself, please!! :]*
 
+_C+H is totally ok, don't be shy !_ `(unless I'm with friends guh)`
+
 Whispers are more recommended since I'm offtab most of the time tho,, sorry!
 I will probably disconnect more often though!!!
 
